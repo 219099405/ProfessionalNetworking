@@ -28,7 +28,7 @@ As a result, I now have a stronger understanding of how to network strategically
 
 
 <p align="center">
-<h3>PROFESSIONAL NETWORKINGEVIDENCE<h3/>
+<h3>PROFESSIONAL NETWORKING EVIDENCE<h3/>
   <br>
 
 <img width="883" height="420" alt="prof networking" src="https://github.com/user-attachments/assets/d4226fa0-9a7a-4b95-aa33-cd6d0edce610" />
